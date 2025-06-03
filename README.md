@@ -1,0 +1,1 @@
+# projeto-VScode-thauan-2025
